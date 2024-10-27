@@ -1,1 +1,1 @@
-Currículo Vitae actualizado a Octubre 2024
+Currículum Vitae actualizado a Octubre 2024
